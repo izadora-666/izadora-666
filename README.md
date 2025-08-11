@@ -1,11 +1,10 @@
-## Bem vindo
+## 𝚆𝚎𝚕𝚌𝚘𝚖𝚎 
 
+ - ☆ Gosto de desenhar
+ - ★ 15y
+ - ☆ Signo: Aquário
+ - ★ Pronomes: Ela/Dela
+ - ☆ Fato engraçado: Preto não é a minha cor fav
+https://tenor.com/sJ2PBA7ULl1.gif
 
-**izadora-666/izadora-666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-- ☆ 𝓘’m currently learning draw...
-- ★ 𝓐sk me about JJBA...
-- ☆ 𝓗ow to reach me: ...
-- ★ 𝓟ronouns: ...
-- ☆ 𝓕un fact: ...
 
