@@ -5,7 +5,7 @@
  - ☆ Signo: Aquário
  - ★ Pronomes: Ela/Dela
  - ☆ Fato engraçado: Preto não é a minha cor fav
- - ![Eee Sticker](https://media.tenor.com/oIJh0gHT1IQAAAAd/eee-sticker.gif)
+ - ![Eee Sticker](https://media.tenor.com/qY98147Mq6IAAAAj/eee.gif)
 
 
 
